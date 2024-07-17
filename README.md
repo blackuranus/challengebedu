@@ -35,4 +35,3 @@ angie@landrover.mx
 
 ---
 
-![Range Rover Sport](https://www.shutterstock.com/image-photo/beautiful-sports-car-photography-stills-rollers-2454641251)
